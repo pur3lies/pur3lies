@@ -9,4 +9,4 @@ she / they 🎲 18  ⌇  XNTP  ⌇  pisces
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
  <p align="center">
-⠀⠀⠀ ⠀HEAVY shadow milk cookie, astro, twisted glisten, shrimpo, black pearl cookie, gigi, pomni, blitz, fizzarolli kinnie (and much more)
+⠀⠀⠀ ⠀HEAVY shadow milk cookie, astro, looey, twisted glisten, shrimpo, black pearl cookie, gigi, pomni, blitz, fizzarolli kinnie (and more)
