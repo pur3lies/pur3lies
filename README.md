@@ -1,5 +1,5 @@
 <p align="center">
-♟️ bex 𓆩♡𓆪  bea ₒᵣ bibi 
+♟️ bex 𓆩♡𓆪  bibi ₒᵣ kin names
 <p align="center">
 she / they 🎲 18  ⌇  XNTP  ⌇  pisces
 
