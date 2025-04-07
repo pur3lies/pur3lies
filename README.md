@@ -1,7 +1,7 @@
 <p align="center">
 🪼 bex 𓆩♡𓆪  bea ₒᵣ bibi
 <p align="center">
-she / they 🦈 18  ⌇  XNTP  ⌇  pisces 
+she / any 🦈 18  ⌇  XNTP  ⌇  pisces 
 
    ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
    ![](https://komarev.com/ghpvc/?username=pur3lies&color=1750AC&style=flat&label=stars)
