@@ -5,6 +5,8 @@ she / any 🎲 18  ⌇  XNTP  ⌇  pisces
 
    ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
    ![](https://komarev.com/ghpvc/?username=pur3lies&color=1750AC&style=flat&label=lies)
+
+   ㅤㅤ<img src="https://komarev.com/ghpvc/?username=pur3lies&color=1750AC&flat&label=⠀lies⠀:&base=30000"></img>
 </p>  ⠀
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
