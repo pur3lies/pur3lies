@@ -8,7 +8,7 @@ she / any 🎲 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 </p>  ⠀
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
- <p align="center">
-⠀⠀⠀ ⠀HEAVY shadow milk cookie kinnie. 
-     <p align="center">
+<p align="center">
+HEAVY shadow milk cookie kinnie. 
+<p align="center">
    other main kins: astro, looey, twisted glisten, shrimpo, black pearl cookie, pomni, fizzarolli (and more)
