@@ -1,5 +1,5 @@
 <p align="center"> $${\color{lightblue}
-♟️ bex 𓆩♡𓆪  bibi ₒᵣ kin names }$$
+♟️ bex  𓆩♡𓆪  bibi ₒᵣ  kin names }$$
 <p align="center">
 she / any 🎲 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 
