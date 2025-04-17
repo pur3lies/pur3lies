@@ -1,4 +1,8 @@
 <p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=17&pause=1000&color=1750AC&center=true&vCenter=true&width=435&lines=Welcome+folks!+Ready+for+some+giggles..%3F" alt="Typing SVG" /></a>
+</p>
+
+<p align="center">
 ♟️ bex  𓆩♡𓆪  bibi ₒᵣ  kin names 
 <p align="center">
 she / any 🎲 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
