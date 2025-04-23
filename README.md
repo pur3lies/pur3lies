@@ -15,4 +15,4 @@ read my strawpage, patreon or pronounscc for info 𐂯
 <p align="center">
 HEAVY shadow milk cookie kinnie. 
 <p align="center">
-   other main kins: astro, looey, twisted glisten, shrimpo, black pearl cookie, pomni, fizzarolli (and more)
+   other main kins: astro, looey, twisted glisten, shrimpo, black pearl cookie and more
