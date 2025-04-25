@@ -5,7 +5,7 @@
 <p align="center">
 ♟️ bex  𓆩♡𓆪  bibi ₒᵣ  kin names 
 <p align="center">
-she / any 🎲 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
+she / any 🃏 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 
    ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
    ㅤㅤ<img src="https://komarev.com/ghpvc/?username=pur3lies&color=1750AC&flat&label=lies&base=3000"></img>
