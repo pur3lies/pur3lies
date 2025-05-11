@@ -15,4 +15,4 @@ read my strawpage, patreon or pronounscc for info 𐂯
 <p align="center">
 i relate heavily to smc and looey
 <p align="center">
-i also relate to: astro, twisted glisten, shrimpo, black pearl cookie and more
+other ME characters: astro, twisted glisten, shrimpo, black pearl cookie and more
