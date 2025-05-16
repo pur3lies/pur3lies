@@ -13,6 +13,6 @@ she / any 🃏 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
 <p align="center">
-i relate heavily to smc and looey
+smc and looey synpath
 <p align="center">
-other ME characters: astro, twisted glisten, shrimpo, black pearl cookie and more
+other synpaths: astro, twisted glisten, shrimpo, black pearl cookie and more
