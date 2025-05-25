@@ -13,6 +13,4 @@ she / any 🃏 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
 <p align="center">
-smc and looey synpath
-<p align="center">
-other synpaths: astro, twisted glisten, shrimpo, black pearl cookie and more
+smc and looey kinnie
