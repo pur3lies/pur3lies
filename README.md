@@ -13,4 +13,4 @@ she / any 🃏 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
 <p align="center">
-smc and looey kinnie
+im literally smc and looey
