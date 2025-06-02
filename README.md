@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-♟️ bex  𓆩♡𓆪  bibi ₒᵣ  kin names 
+♟️ bex  𓆩♡𓆪  bibi ₒᵣ  jester / kin names 
 <p align="center">
 she / any 🃏 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 
