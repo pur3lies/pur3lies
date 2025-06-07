@@ -4,12 +4,10 @@
 <p align="center"> ╭┈ • ┈ ୨୧ ┈ • ┈╮
 <p align="center"> bex  𓆩♡𓆪  bibi ♟️ ₒᵣ  jester / kin names
 <p align="center"> 🃏 <a href="https://pronouns.cc/@j3ster">she</a> / they / any ꩜ .ᐟ 
-
 <p align="center"> 
-   18  ♤  bisapphic demigirl ♡  XNTP  ♧  pisces  ♢ artist
-   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   
-  
-   <p align="center">
+18  ♤  bisapphic demigirl ♡  XNTP  ♧  pisces  ♢ artist
+   
+   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
   <img src="https://komarev.com/ghpvc/?username=pur3lies&color=914996&flat&label=laughs"></img>
 </p>  ⠀
 <p align="center">
