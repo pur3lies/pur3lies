@@ -5,7 +5,7 @@
 <p align="center">
 ♟️ bex  𓆩♡𓆪  bibi ₒᵣ  jester / kin names
 <p align="center">
-she / they / any 🃏 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
+<p align="center"> <a href="https://pronouns.cc/@j3ster">she</a> / they / any 🃏 18  ⌇  XNTP  ⌇  pisces  ⌇  artist .
 
    ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
    ㅤㅤ<img src="https://komarev.com/ghpvc/?username=pur3lies&color=914996&flat&label=laughs"></img>
