@@ -13,6 +13,6 @@
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
 <p align="center">
-im literally smc and looey trust
+im literally smc, looey, jax and pomni trust
    
 <p align="center"> ╰┈ • ┈ ୨୧ ┈ • ┈╯
