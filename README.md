@@ -8,7 +8,7 @@
 18  ♤  bisapphic demigirl ♡  XNTP  ♧  pisces  ♢ artist
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=a000c8&flat&label=laughs"></img>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=c21807&flat&label=laughs"></img>
 </p>  ⠀
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
