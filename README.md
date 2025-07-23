@@ -5,7 +5,7 @@
 <p align="center"> bex  𓆩♡𓆪  bibi ♟️ ₒᵣ  jester / kin names
 <p align="center"> 🃏 they / <a href="https://pronouns.cc/@j3ster">she</a> / any ꩜ .ᐟ 
 <p align="center"> 
-18  ♤  bisapphic demigirl ♡  XNTP  ♧  pisces  ♢ artist
+18  ♤  sapphic/abro demigirl ♡  XNTP  ♧  pisces  ♢ artist
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=c21807&flat&label=laughs,,🎈"></img>
