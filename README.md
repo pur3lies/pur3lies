@@ -11,7 +11,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=c21807&flat&label=laughs,,🎈"></img>
 </p>  ⠀
 <p align="center">
-read my strawpage, patreon or pronounscc for info 𐂯
+read my strawpage, patreon or pronounscc for info 𐂯 
 <p align="center">
 im literally smc, looey, jax and pomni trust
    
