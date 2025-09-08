@@ -12,5 +12,6 @@
 <p align="center"> read my strawpage, patreon or pronounscc for info 𐂯 
 <p align="center"> im literally smc, looey, jax and pomni trust
 <p align="center"> pls interact / be my friend or green name / cuddle with me on ponytown !!!! i needs friends me fear,,
+<p align="center"> i try different styles just for fun, tell me if it looks too similar to yours. i dont copy/take inspo from anyone unless i asked, so if a pony look similar to yours its just coincidence
    
 <p align="center"> ╰┈ • ┈ ୨୧ ┈ • ┈╯
