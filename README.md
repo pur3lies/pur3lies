@@ -3,8 +3,8 @@
 </p>
 <p align="center"> ╭┈ • ┈ ୨୧ ┈ • ┈╮
 <p align="center"> jester  𓆩♡𓆪  bex ♟️ ₒᵣ bibi / kin names
-<p align="center"> 🃏 they / <a href="https://pronouns.cc/@j3ster">she</a> / any ꩜ .ᐟ 
-<p align="center"> 18  ♤  sapphic/abro demigirl ♡  XNTP  ♧  pisces  ♢ artist
+<p align="center"> 🃏 they / <a href="https://pronouns.cc/@j3ster">it</a> / she ꩜ .ᐟ 
+<p align="center"> 18  ♤  sapphic/abro ♡  XNTP  ♧  pisces  ♢ artist
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=ee0cff&flat&label=laughs,,🎈"></img>
