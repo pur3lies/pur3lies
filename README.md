@@ -7,7 +7,7 @@
 <p align="center"> 18  ♤  sapphic , demiromantic and non binary  ♡  XNTP  ♧  pisces  ♢ artist
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=4cbb17&flat&label=☆"></img>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=b4c04c&flat&label=☆"></img>
 </p>  ⠀
 <p align="center"> read my strawpage, patreon or pronounscc for info 𐂯 
 <p align="center"> im literally smc, looey, jax and pomni trust
