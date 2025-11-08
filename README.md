@@ -3,7 +3,7 @@
 </p>
 <p align="center"> ╭┈ • ┈ ୨୧ ┈ • ┈╮
 <p align="center"> jester   𓆩♡𓆪   kin names ( gourdy , looey etc. )
-<p align="center"> 🃏 <a href="https://pronouns.cc/@j3ster">they</a>  it  any ꩜ .ᐟ 
+<p align="center"> 🔆 <a href="https://pronouns.cc/@j3ster">they</a>  it  any ꩜ .ᐟ 
 <p align="center"> 18  ♤  sapphic , demiromantic and non binary  ♡  XNTP  ♧  pisces  ♢ artist
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
