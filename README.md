@@ -2,7 +2,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=17&pause=1000&color=d16002&center=true&vCenter=true&width=435&lines=I'm+trying.+Really,+really,+hard." alt="Typing SVG" /></a>
 </p>
 <p align="center"> ╭┈ • ┈ ୨୧ ┈ • ┈╮
-<p align="center"> jester   𓆩♡𓆪   jes ; kin names ( gourdy , looey etc. )
+<p align="center"> jester   𓆩♡𓆪   kin names ( gourdy , looey etc. )
 <p align="center"> 🃏 <a href="https://pronouns.cc/@j3ster">they</a> / any ꩜ .ᐟ 
 <p align="center"> 18  ♤  sapphic , demiromantic and non binary  ♡  XNTP  ♧  pisces  ♢ artist
    
