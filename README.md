@@ -2,7 +2,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=17&pause=1000&color=e3242b&center=true&vCenter=true&width=435&lines=Remember+theyre+not+laughin+at+you,+theyre+laughin+with+you." alt="Typing SVG" /></a>
 </p>
 <p align="center"> ╭┈ • ┈ ୨୧ ┈ • ┈╮
-<p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎ ༝‎‎ ‎ b̶e̶x̶
+<p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎ ༝‎‎‎ ‎ ‎𝚋𝚎𝚡
 <p align="center"> 🔆 <a href="https://pronouns.cc/@j3ster">they</a> ‎ it‎ ‎ any ◞‎ ‎ sapphic ◞‎ ‎ demi/biromantic ◞‎ ‎ non binary / agender ︵ .ᐟ 
 <p align="center"> # artist‎  ♤  18  ♡  XNTP  ♧  pisces  ♢ artist
    
