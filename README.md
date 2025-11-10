@@ -4,7 +4,7 @@
 <p align="center"> ╭┈ • ┈ ୨୧ ┈ • ┈╮
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎ ༝‎‎‎ ‎ ‎𝚋𝚎𝚡
 <p align="center"> 🔆 <a href="https://pronouns.cc/@j3ster">they</a> ‎ it‎ ‎ any ◞‎ ‎ sapphic ◞‎ ‎ demi/biromantic ◞‎ ‎ non binary / agender ︵ .ᐟ 
-<p align="center"> # artist‎  ♤  18  ♡  XNTP  ♧  pisces  ♢ artist
+<p align="center"> # ‎ artist‎ ‎ ♤ ‎ 18 ‎ ♡ ‎ XNTP ‎ ♧ ‎ pisces ‎ ♢ ‎ 03.03 ‎ Ი︵𐑼
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=037c6e&flat&label=☆"></img>
