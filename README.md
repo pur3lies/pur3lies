@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=17&pause=1000&color=e3242b&center=true&vCenter=true&width=435&lines=Remember+theyre+not+laughin+at+you,+theyre+laughin+with+you." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=17&pause=1000&color=e3242b&center=true&vCenter=true&width=435&lines=Remember+others+arent+laughin+at+you,+theyre+laughin+with+you." alt="Typing SVG" /></a>
 </p>
 <p align="center"> ・・・・・・・・・・
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎ ༝‎‎‎ ‎ ‎𝚋𝚎𝚡
