@@ -2,7 +2,7 @@
 
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5500&pause=1000&color=037c6e&center=true&vCenter=true&width=600&lines=Radio+and+video.+Me+and+you,+we+could+rule+hell..+together.+As+partners." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=037c6e&center=true&vCenter=true&width=600&lines=Radio+and+video.+Me+and+you,+we+could+rule+hell.;..together.+As+partners." alt="Typing SVG" /></a>
 </p>
 <p align="center"> ・・・・・・・・・・
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎ ༝‎‎‎ ‎ ‎al
