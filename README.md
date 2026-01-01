@@ -6,7 +6,7 @@
 </p>
 <p align="center"> ・・・・・・・・・・
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎ ༝‎‎‎ ‎ ‎al
-<p align="center"> 🔆 <a href="https://pronouns.cc/@DEALMAKER">they</a> ‎ it‎ ‎ any ◞‎ ‎ sapphic ◞‎ ‎ demi/biromantic ◞‎ ‎ non binary / agender ︵ .ᐟ 
+<p align="center"> 🔆 <a href="https://pronouns.cc/@DEALMAKER">they</a> ‎ it‎ ‎ any ◞‎ ‎ bisexual ◞‎ ‎ demiromantic ◞‎ ‎ non binary / agender ︵ .ᐟ 
 <p align="center"> # ‎ artist‎ ‎ ♤ ‎ 18 ‎ ♡ ‎ XNTP ‎ ♧ ‎ pisces ‎ ♢ ‎ 03.03 ‎ Ი︵𐑼
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
