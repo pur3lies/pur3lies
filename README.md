@@ -12,7 +12,7 @@
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=e3242b&flat&label=☆"></img>
 </p>  ⠀
-<p align="center"> read my strawpage, patreon or pronounscc for info 𐂯 
+<p align="center"> read my sites or my other repository for full info ! 𐂯 
 <p align="center"> im the #1 looey, smc, gourdy, alastor, jax and astro kin . doubles iwc
 <p align="center"> pls interact / be my friend or green name / cuddle with me on ponytown !!!! i needs friends me fear,,
    
