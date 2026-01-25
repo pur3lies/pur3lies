@@ -1,8 +1,8 @@
-<p align="center"> <img width="550" height="575" alt="Image" src="https://github.com/user-attachments/assets/80f55014-3109-4d54-aa3e-805167f0219d" /> </p>
+<p align="center"> <img width="600" height="510" alt="Image" src="https://github.com/user-attachments/assets/d6f799df-d9bf-4ce3-a284-4fb662aa0dec" /> </p>
 
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=037c6e&center=true&vCenter=true&width=600&lines=Radio+and+video.+Me+and+you,+we+could+rule+hell.;..together.+As+partners." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=037c6e&center=true&vCenter=true&width=600&lines=wip" alt="Typing SVG" /></a>
 </p>
 <p align="center"> ・・・・・・・・・・
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎ ༝‎‎‎ ‎ ‎al
