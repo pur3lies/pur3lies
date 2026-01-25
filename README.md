@@ -2,7 +2,7 @@
 
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=9d2933&center=true&vCenter=true&width=600&lines='Don't+make+me+devour+you+too.'" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=743d49&center=true&vCenter=true&width=600&lines='Don't+make+me+devour+you+too.'" alt="Typing SVG" /></a>
 </p>
 <p align="center"> ・・・・・・・・・・
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎  ‎
@@ -10,7 +10,7 @@
 <p align="center"> # ‎ artist‎ ‎ ♤ ‎ 18 ‎ ♡ ‎ XNTP ‎ ♧ ‎ pisces ‎ ♢ ‎ 03.03 ‎ Ი︵𐑼
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=e3242b&flat&label=☆"></img>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=2c2121&flat&label=☆"></img>
 </p>  ⠀
 <p align="center"> read my sites or my other repository for full info ! 𐂯 
 <p align="center"> im the #1 looey, smc, gourdy, alastor, jax and astro kin . doubles iwc
