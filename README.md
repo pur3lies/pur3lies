@@ -13,7 +13,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pur3lies&color=2c2121&flat&label=☆"></img>
 </p>  ⠀
 <p align="center"> read my sites or my other repository for full info ! 𐂯 
-<p align="center"> im the #1 looey, smc, gourdy, alastor, jax and astro kin . doubles iwc
+<p align="center"> my heavy kins (atm) are looey, shadow milk and geto, check my prns page for other kins
 <p align="center"> pls interact / be my friend or green name / cuddle with me on ponytown !!!! i needs friends me fear,,
    
 <p align="center"> ・・・・・・・・・・
