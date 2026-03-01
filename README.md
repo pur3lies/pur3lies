@@ -5,8 +5,8 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=743d49&center=true&vCenter=true&width=600&lines='Don't+make+me+devour+you+too.'" alt="Typing SVG" /></a>
 </p>
 <p align="center"> ・・・・・・・・・・
-<p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ༝‎‎ ‎ jes‎ ‎  ‎
-<p align="center"> 🔆 <a href="https://pronouns.cc/@DEALMAKER">they</a> ‎ it‎ ‎ any ◞‎ ‎ bisexual ◞‎ ‎ demiromantic ◞‎ ‎ non binary / agender ︵ .ᐟ 
+<p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ‎ ‎ ༝‎‎ ‎‎ ‎  jes‎ ‎‎ ‎  ◞‎ ‎‎ ‎  vex‎  ‎
+<p align="center"> 🔆 <a href="https://pronouns.cc/@DEALMAKER">they</a> ‎ it‎ ‎ any‎ ‎ :‎ ‎ bisexual‎ ‎ .‎ ‎ demiromantic‎ ‎ . ‎ non binary / agender ︵  
 <p align="center"> # ‎ artist‎ ‎ ♤ ‎ 18 ‎ ♡ ‎ XNTP ‎ ♧ ‎ pisces ‎ ♢ ‎ 03.03 ‎ Ი︵𐑼
    
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
