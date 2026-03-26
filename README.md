@@ -2,7 +2,7 @@
 
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=743d49&center=true&vCenter=true&width=600&lines='wip'" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=5000&pause=10&color=743d49&center=true&vCenter=true&width=600&lines='Know+your+place,+you+fool.'" alt="Typing SVG" /></a>
 </p>
 <p align="center"> ・・・・・・・・・・
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ‎ ‎ ༝‎‎ ‎‎ ‎  jes‎ ‎‎ ‎  ◞‎ ‎‎ ‎  vex‎  ‎
