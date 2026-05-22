@@ -3,7 +3,7 @@
 </p>
 <p align="center">  Ი︵𐑼 ‎ ‎  ‎ ‎  ‎ ‎ <img src="https://komarev.com/ghpvc/?username=pur3lies&color=2c2121&flat&label=☆"></img>
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ‎ ‎ ༝‎‎ ‎‎ ‎  jes‎ ‎‎ ‎  ◞‎ ‎‎ ‎  vex‎  ‎
-<p align="center"> 🔆 <a href="https://pronouns.cc/@sukugo">th</a>ey ‎ it‎ ‎ any‎ ‎ :‎ ‎ bisexual‎ ‎ .‎ ‎ ‎aroacespec ‎ . ‎ non binary / agender ︵  
+<p align="center"> 🔆 <a href="https://pronouns.cc/@sukugo">th</a>ey ‎ it‎ ‎ he ‎ :‎ ‎ bisexual‎ ‎ .‎ ‎ ‎aroacespec ‎ . ‎ non binary / agender ︵  
 <p align="center"> # ‎ artist‎ ‎ ♤ ‎ 19 ‎ ♡ ‎ XNTP ‎ ♧ ‎ pisces ‎ ♢ ‎ 03.03 ‎
 
    ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀   <p align="center">
