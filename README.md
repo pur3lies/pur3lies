@@ -2,7 +2,7 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=20&duration=4000&pause=10&color=743d49&center=true&vCenter=true&width=600&lines=sukuna+n.1+lover." alt="Typing SVG" /></a>
 </p>
 <p align="center">  Ი︵𐑼 ‎ ‎  ‎ ‎  ‎ ‎ <img src="https://komarev.com/ghpvc/?username=pur3lies&color=2c2121&flat&label=☆"></img>
-<p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ‎ ‎ ༝‎‎ ‎‎ ‎  jes‎ ‎‎ ‎  ◞‎ ‎‎ ‎  vex‎  ‎
+<p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ 𝒌in 𝒏𝒂mes ‎ ‎ ‎ ༝‎‎ ‎‎ ‎  sukuna ‎‎ ‎  ◞‎ ‎‎ ‎  vex‎  ‎
 <p align="center"> 🔆 <a href="https://pronouns.cc/@sukugo">th</a>ey ‎ it‎ ‎ he ‎ :‎ ‎ bisexual‎ ‎ .‎ ‎ ‎aroacespec ‎ . ‎ non binary / agender ︵  
 <p align="center"> # ‎ artist‎ ‎ 𓂃 ‎ 19 ‎ ༝ ‎ XNTP ‎ , ‎ 03.03 ‎
 
