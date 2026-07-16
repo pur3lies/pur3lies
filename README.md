@@ -11,4 +11,6 @@
 
    
 <p align="center"> ・・・・・links・・・・・
-<p align="center"> <a href="https://guns.lol/dismantIe">guns.lol</a>ㅤ<a href="https://listography.com/suguruu">listography</a>ㅤ<a href="https://embodimentofrage.atabook.org/">ata</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a>ㅤ<a href="https://en.pronouns.page/@sukvna">prns.page</a>ㅤ<a href="https://malevolentdnis.straw.page">dni list</a>ㅤ‎<a href="https://jesterlovemail.straw.page/">lovemail</a>
+<p align="center"> <a href="https://guns.lol/dismantIe">guns.lol</a>ㅤ<a href="https://rentry.co/dismantlecleave">rentry</a>ㅤ<a href="https://listography.com/suguruu">listography</a>ㅤ<a href="https://embodimentofrage.atabook.org/">ata</a>ㅤ<a href="https://kiingofcurses.straw.page/">straw</a>
+   
+<p align="center"> <a href="https://en.pronouns.page/@sukvna">prns.page</a>ㅤ<a href="https://malevolentdnis.straw.page">dni list</a>ㅤ‎<a href="https://jesterlovemail.straw.page/">lovemail</a>
