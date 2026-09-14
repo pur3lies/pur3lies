@@ -3,7 +3,7 @@
 </p>
 <p align="center">  Ი︵𐑼 ‎ ‎  ‎ ‎  ‎ ‎ <img src="https://komarev.com/ghpvc/?username=pur3lies&color=b91f1c&flat&label=☆"></img>
 <p align="center"> 𝗷𝗲𝘀𝘁𝗲𝗿 ‎ ‎ ‎  𓆩♡𓆪 ‎ ‎ ‎ vex ‎ ‎ ‎ ༝‎‎ ‎‎ ‎  sukuna ‎‎ ‎  ◞‎ ‎‎ ‎  ryo  ‎
-<p align="center"> ⛩️ ‎ ‎ <a href="https://pronouns.cc/@sukugo">th</a>ey ‎◞‎ ‎ he ‎◞‎ ‎ it ‎◞ ‎ curse ‎ 𓏼 ‎ 19 ‎ 𓏏𓏏 ‎ XNTP
+<p align="center"> ⛩️ ‎ ‎ <a href="https://pronouns.cc/@sukugo">he</a> ‎◞‎ ‎ it ‎◞‎ ‎ curse ‎◞ ‎ they ‎ 𓏼 ‎ 19 ‎ 𓏏𓏏 ‎ XNTP
 <p align="center"> 
 <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/e03f3eff-ab1b-4779-99ee-962309152451" /> <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/db5fd5a3-a3e7-4fa1-9ff1-774c6b2618f7" /> <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/a549f978-058f-460b-b9bd-6ad457a282bd" /> <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/2c1b5ce7-2010-4019-9949-39bd884cf985" /> <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/9d8f5b9c-c140-4303-9a4e-f4f09882d150" /> <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/10a81f02-f053-4b56-a5f7-c9b16a532d69" /> <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/52db955e-ef69-4b51-9d08-33df5eb250a3" />
 
